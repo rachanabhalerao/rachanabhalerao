@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rachanabhalerao777@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1u5Hv-VOYsRz0t0eacxHv4_Dv93pRXdu0/view?usp=sharing](https://drive.google.com/file/d/1u5Hv-VOYsRz0t0eacxHv4_Dv93pRXdu0/view?usp=sharing)
+- 📄 Know about my experiences <p>Rachana Bhalerao <a href="https://drive.google.com/file/d/1u5Hv-VOYsRz0t0eacxHv4_Dv93pRXdu0/view?usp=sharing](https://drive.google.com/file/d/1u5Hv-VOYsRz0t0eacxHv4_Dv93pRXdu0/view?usp=sharing"></a></p>
 
 - ⚡ Fun fact **I Like Painting**
 
